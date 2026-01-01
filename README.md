@@ -15,4 +15,3 @@ Welcome on  Github profile and in here I want to share skill, and experience, an
 - 📫 How to reach me: mirfanbaari40@gmail.com
 - 😄 Pronouns: Happy, Enjoy, Bussy
 - ⚡ Fun fact: I'm always learn and exploring a new skill which never do as well.
---> That's all of me, thank you very much and greetings. Regards. 
